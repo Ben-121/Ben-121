@@ -17,7 +17,7 @@
 
 - 📫 How to reach me **sparkingscar@gmail.com**
 
-- ⚡ Fun fact **I play Valorant and still keep up with my skills**
+- ⚡ Fun fact **I play Valorant and still keep up with my skills in coding LOL**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
